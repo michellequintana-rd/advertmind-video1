@@ -1,1 +1,0 @@
-# advertmind-video1
